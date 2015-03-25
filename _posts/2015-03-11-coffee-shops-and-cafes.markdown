@@ -45,3 +45,9 @@ Can be crowded on the main floors, but upper floors can be great for working in 
 
 The tables and bars next to the Starbucks are usually great candidates for peaceful working and coffee consumption.
 
+## Winterpark
+
+### [Stardust](https://stardustvideoandcoffee.wordpress.com/)
+
+Chill atmosphere, great coffee, laptop-friendly.
+
